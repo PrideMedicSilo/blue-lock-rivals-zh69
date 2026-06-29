@@ -1,4 +1,4 @@
-
+blue lock rivals ultimate Script offers the most advanced blue lock rivals Script, with auto-collect and auto-upgrade. Perfect for dominating any
 
 
 
